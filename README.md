@@ -1,5 +1,5 @@
 ## hello
-https://images.app.goo.gl/mATXkV9mG8QJz798A
+![bugbo-gangnam-style](https://github.com/user-attachments/assets/923fe104-a6bf-41e1-a2da-cee05c3b28eb)
 <!--
 **EpikallyEpik/EpikallyEpik** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
